@@ -1,3 +1,3 @@
-# CHiEN NGUYEN
+# CHIEN NGUYEN
 
-## ABOU
+## ABOUT ME
